@@ -50,7 +50,7 @@
 Ali Shahbaz	
 	
       	
-![image](https://github.com/aleeshehbaz/aleeshehbaz/assets/42076367/35411b24-52cd-4a7f-84fe-83e57a6b5d1c)
+
 
 
       
